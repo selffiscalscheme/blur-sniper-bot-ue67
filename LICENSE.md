@@ -1,4 +1,4 @@
-# 
+# Get the ultimate blur sniper bot with ultimate NFT Rarity Sniper for blur sniper bot | metadata-parsing & stop-loss. Featuring metadata-parsing and stop-loss, it's the best choice
 
 
 
